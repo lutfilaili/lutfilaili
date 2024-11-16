@@ -4,7 +4,7 @@ ________________________________________________________________________________
 
 Hi there! a seasoned Business Relationship Professional with a passion for fostering strong partnerships and driving business growth. I've honed my skills in client relationship management, contract negotiation, stakeholder engagement.<p>
 
-Now, We have been witnessing how Generative AI is useful for streamlining business matters. 
+Now, we are in the situation where Generative AI is useful for streamlining business matters. 
 Therefore, I'm drawn to explore the potential of Generative AI and its transformative impact on various industries.
 
 
